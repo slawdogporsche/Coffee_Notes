@@ -4,3 +4,4 @@
 10/22, 6 minutes, Coarse Grind, 31g grounds, no bloom, no stirring crust.
 10/28, El salvador sierra nevada 435, 6 minutes, Coarse grind, 1:10 ratio, no bloom, no stirring. Fruity.
 10/30 El salvador sierra nevada 435, 5 minutes, Coarse grind, 1:10, no bloom, no stirring. Less fruity, more smooth.
+11/9 El savador sierra nevada 435, 5 minutes, Coarse grind, 1:19, pour w/o turning outlet. More fruity.
