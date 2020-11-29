@@ -7,3 +7,5 @@
 11/9 El savador sierra nevada 435, 5 minutes, Coarse grind, 1:19, pour w/o turning outlet. More fruity.
 11/16 Brazil cerrado santana 460, 6 minutes, Coarse grind, 1:11, pour as above; bitter and strong
 11/18 Brazil cerrado santana 460, 5 minutes, coarse grind, 1:17, pour as above; slightly bitter, too watered down
+11/22 Folgers, 5 minutes, fine grind 1:11, pour as above, tastes terrible
+11/28 Some really terrible store bought stuff, fine grind, drip brew, really awful
