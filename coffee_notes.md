@@ -9,3 +9,4 @@
 11/18 Brazil cerrado santana 460, 5 minutes, coarse grind, 1:17, pour as above; slightly bitter, too watered down
 11/22 Folgers, 5 minutes, fine grind 1:11, pour as above, tastes terrible
 11/28 Some really terrible store bought stuff, fine grind, drip brew, really awful
+12/9 Honduras El Cisne 425, 4 minutes, coarse grind, 1:15, mild with spicy notes
